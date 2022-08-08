@@ -11,3 +11,4 @@ Sarah, I probably know a lot less than you.. :p
 uno reverse card, this is not true
 
 Hey Sarah, what did the fish say when it swam into a wall?
+idk Jo, what did it say?
