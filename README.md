@@ -22,3 +22,4 @@ why are computers not good boxers at all?
 hmmmmm.... I'm not sure sarah why aren't computers good boxers?
 
 
+It's because their barks are alwaus worse than their bytes. Ba dun tss
