@@ -18,3 +18,7 @@ idk Jo, what did it say?
 dam :')
 
 why are computers not good boxers at all?
+
+hmmmmm.... I'm not sure sarah why aren't computers good boxers?
+
+
